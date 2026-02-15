@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Shanmukavel Senthil Kumar
+# 👋 Hello, I'm Shan (Shanmukavel) Senthil Kumar
 
 ## About Me
 
